@@ -2,7 +2,7 @@
 - 👀 I’m interested in software devloopment
 - 🌱 I’m currently learning b-tech computer science
 - 💞️ I’m looking to collaborate on some major projects
-- 📫 How to reach me instagram @satya_patil_2611
+- 📫 How to reach me instagram @Devile_2611
 - 😄 Pronouns: Devile
 
 <!---
